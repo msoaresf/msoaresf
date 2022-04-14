@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...
 - 📫 How to reach me: @msoaresf_
 - 😄 Pronouns: ela/dela
-- ⚡ Fun fact: eu
+- ⚡ Fun fact: sou alegica a formiga! :)
 -->
