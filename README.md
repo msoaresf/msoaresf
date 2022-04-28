@@ -1,15 +1,16 @@
-### Hi there 👋
+# Sobre mim 😁
 
-**msoaresf/msoaresf** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ Meu nome e Maria Eduarda, sou de Santa Maria-RS, curso tecnico em informatica no Ctism e pretendo seguir carreira nesta area 
 
-Here are some ideas to get you started:
+# Hobbies
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: @msoaresf_
-- 😄 Pronouns: ela/dela
-- ⚡ Fun fact: sou alegica a formiga! :)
--->
+- Pintar✍️
+- Escutar musica 🎶
+- sair com os bests ♥️
+
+# Contato
+ 
+-  [Twitter](https://twitter.com/mesff_)
+-  [Instagram](https://www.instagram.com/msoaresf_/) 
+
+
