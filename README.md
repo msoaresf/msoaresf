@@ -12,5 +12,10 @@
  
 -  [Twitter](https://twitter.com/mesff_)
 -  [Instagram](https://www.instagram.com/msoaresf_/) 
+-  email- msoaresescola@gmail.com
+
+# aspirações profissionais
+
+-pretendo cursar desing
 
 
