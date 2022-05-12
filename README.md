@@ -8,14 +8,15 @@
 - Escutar musica 🎶
 - sair com os bests ♥️
 
+# aspirações profissionais
+
+-pretendo cursar Ciências da Computação
+
 # Contato
  
 -  [Twitter](https://twitter.com/mesff_)
 -  [Instagram](https://www.instagram.com/msoaresf_/) 
 -  email- msoaresescola@gmail.com
 
-# aspirações profissionais
-
--pretendo cursar desing
 
 
