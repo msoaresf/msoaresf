@@ -10,7 +10,7 @@
 
 # aspirações profissionais
 
--pretendo cursar Ciências da Computação
+- pretendo cursar Ciências da Computação👍
 
 # Contato
  
