@@ -8,7 +8,7 @@
 - Escutar musica 🎶
 - sair com os bests ♥️
 
-# aspirações profissionais
+# Aspirações profissionais
 
 - pretendo cursar Ciências da Computação👍
 
